@@ -1,1 +1,1 @@
-The world is a great place
+this world is on fire
